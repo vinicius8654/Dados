@@ -1,2 +1,2 @@
 # Vinicius
-## dar asas a uma galinha é a mexma coisa que dar testiculos a um papa... A galinha não pode voar e o padre....
+## Vocês nunca conseguirão saber como um piloto se sente quando vence uma prova. O capacete oculta sentimentos incompreensíveis.
